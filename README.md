@@ -1,6 +1,6 @@
 # **BHAGAVATH BHOKASKEDE**  
 📞 +91 9951341060 | ✉️ [bhagavath11ab@gmail.com](mailto:bhagavath11ab@gmail.com)  
-🌐 [LinkedIn](#) | [Portfolio](#) | [GitHub](#)  
+🌐 [LinkedIn](https://www.linkedin.com/in/bhagavath-b-097224253/) | [Portfolio](https://bhagavath11.github.io/Portfolio/) | [GitHub](github.com/bhagavath11)  
 
 ---
 
